@@ -1,3 +1,3 @@
-# kl0ver-website
+# qnz-website
 
-totally not stolen from miluuu.cf
+modCheck
